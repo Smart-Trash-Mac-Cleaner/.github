@@ -26,7 +26,7 @@ With Smart Trash Mac Cleaner, users benefit from an intuitive interface, schedul
 
 Whether you are a student, professional, or casual user, Smart Trash helps you maintain a clutter-free system and improve overall productivity.
 
-![Smart Trash Interface](https://static.macupdate.com/screenshots/328290/m/smart-trash-screenshot.png?v=1644515793)
+![Smart Trash Interface](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRlCXvLmWwQJzjF_cVasW6-wG_nQo8WzTOpvg&s)
 
 ---
 
